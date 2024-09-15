@@ -2,7 +2,7 @@
 
 ### hi! I'm **Kana**, you can also call me *Expand*. you're most likely here from Pony Town.
 ### my interests currently are: ProjectMoon, Touhou & Henry Stickmin.
-### I mostly stay at the Library; you'll most likely see me as **LCB Hubert** or **The Reaved Lamenter**.
+### I mostly stay at the Library in Safe servers; you'll most likely see me as **LCB Hubert** or **The Reaved Lamenter**.
 ### I \*HIGHLY* recommend whispering to interact _(and to ask for other socials like Discord)_, public chat is simply too scary for me.
 
 <!---
