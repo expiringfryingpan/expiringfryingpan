@@ -1,6 +1,6 @@
 hi! I'm **Kana**, you can also call me *Expand*. you're probably here from Pony Town.
 
-my current interests are: ProjectMoon, Touhou, Henry Stickmin & Pokemon.
+my interests include: ProjectMoon, Touhou, Henry Stickmin, Pokémon, and a loooooot more.
 
 I'm usually at the Library in Safe servers, but I occasionally hop on 18+ servers (since there's lesser people there); you'll mostly find me as **LCB Hubert** or another _ProjectMoon_ character.
 
