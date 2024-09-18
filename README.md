@@ -4,9 +4,9 @@ hi! I'm **Kana**, you can also call me *Expand*. you're probably here from Pony 
 
 my interests currently are: ProjectMoon, Touhou, Henry Stickmin & Pokemon.
 
-I'm usually at the Library in Safe servers; you'll mostly find me as **LCB Hubert** or **The Reaved Lamenter**.
+I'm usually at the Library in Safe servers, but I occasionally hop on 18+ servers (since there's lesser people there); you'll mostly find me as **LCB Hubert** or another _ProjectMoon_ character.
 
-I **HIGHLY** recommend whispering to interact _(and to ask for other socials like Discord)_, public chat is simply too scary for me.
+I **HIGHLY** recommend whispering to interact _(and to ask for other socials like Discord)_, public chat is too scary for me.
 
 <!---
 ✨ Special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
