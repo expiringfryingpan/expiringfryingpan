@@ -5,10 +5,10 @@
 
 <p align="center">
   hi! I'm Kana. you're probably here from Pony Town. <br><br>
-  my interests include: ProjectMoon, Touhou, Henry Stickmin, Pokémon, and a loooooot more. <br><br>
-  you can find me at the Library in Safe servers, though I occasionally hop on 18+ servers. <br><br>
+  my current interests include: ProjectMoon, Touhou, Roblox, Henry Stickmin & Pokémon. <br><br>
+  you can find me next to the Library (or Cafe) in Safe servers - I occasionally hop on 18+ servers. <br><br>
   I'm usually cosplaying as LCB Hubert or another ProjectMoon character. <br><br>
-  C + H is okay, but please whisper to interact with me (and/or to ask for other socials like Discord), public chat is too scary.
+  C + H is okay; please w2i (and/or to ask for other socials like Discord), public chat is too scary.
 </p>
 
 <!--- <p align="left">
