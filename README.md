@@ -16,7 +16,7 @@
   <i>ProjectMoon, Touhou, Roblox, Henry Stickmin & Pokémon.</i> <br><br>
   you can find me next to the <b>Library</b> (or <b>Cafe</b>) in Safe servers - I occasionally hop on 18+ servers. <br><br>
   I'm usually cosplaying as <b>LCB Hubert</b>, <b>Sancho</b>, or another <i>ProjectMoon</i> character. <br><br>
-  <b>C + H</b> is okay, but <i>please <b>w2i</b></i>, public chat is too scary. <br><br>
+  <b>C + H</b> is okay, but <i>please <b>w2i</b></i>. I'm unlikely to say anything unless you talk to me directly. <br><br>
   write/draw stuff for me on my strawpage; links to my other accounts are there, too. <br><br>
   …………………………
 </p>
