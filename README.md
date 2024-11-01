@@ -7,10 +7,6 @@
 <br>
 
 <p align="center">
-  <b>[ —————————————————————————— ]</b> <br>
-  <b>REMINDER THAT I WILL DC EVERY 15 MINS !</b> <br>
-  <i>my afk timeout resetter is disabled, I can't do much about it.</i> <br>
-  <b>[ —————————————————————————— ]</b> <br><br>
   hi! I'm Kana. you're probably here from Pony Town. <br><br>
   my current interests include: <br>
   <i>ProjectMoon, Touhou, Roblox, Henry Stickmin & Pokémon.</i> <br><br>
