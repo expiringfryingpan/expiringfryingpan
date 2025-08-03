@@ -11,7 +11,7 @@
   I'm usually cosplaying as <i>ProjectMoon</i> or <i>Project Sekai</i> characters, sometimes other fandoms or OCs. <br><br>
   I'm mostly silent; not a conversation starter, except around friends (sometimes). <br>
   though I don't always respond, 👑s & anything else are fine. I don't mind! <br><br>
-  <a href="https://kanatsuki.straw.page/"><bi>strawpage</bi></a><br><br>
+  <a href="https://kanatsuki.straw.page/"><b><i>strawpage</i></b></a><br><br>
   …………………………
 </p>
 
