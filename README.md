@@ -8,10 +8,11 @@
 
 <p align="center">
   hi! I'm Kana. you're probably here from Pony Town. <br><br>
-  you can find me next to the <b>Library</b>, or wherever my friends are at in Safe servers - I'm sometimes in 18+ servers at the <b>Docks</b>. <br><br>
   I'm usually cosplaying as <i>ProjectMoon</i> or <i>Project Sekai</i> characters, sometimes other fandoms or OCs. <br><br>
   I'm mostly silent; not a conversation starter, except around friends (sometimes). <br>
   though I don't always respond, 👑s & anything else are fine. I don't mind! <br><br>
+  <ins>**links**</ins><br>
+  [**strawpage**](https://kanatsuki.straw.page/)<br><br>
   …………………………
 </p>
 
